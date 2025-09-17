@@ -11,6 +11,7 @@
 - bam bam
 - get it they're bullets
 
+(https://www.rit.edu)
 [RIT](https://www.rit.edu)
 
 ![dancin] (https://i.redd.it/mjndu1i28baf1.gif)
