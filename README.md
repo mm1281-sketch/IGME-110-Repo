@@ -15,4 +15,4 @@
 
 [RIT](https://www.rit.edu)
 
-![dancin] (https://i.redd.it/mjndu1i28baf1.gif)
+![dancin] ([https://i.redd.it/mjndu1i28baf1.gif](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSFwHOErE12ztGx1wvcVkOWZr1FRTUAlQy9hQ&s))
